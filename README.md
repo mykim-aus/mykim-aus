@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **how to teach students effective**
 
-- 📫 How to reach me **admin@youngcade.me**
+- 📫 How to reach me **doingmyk@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
